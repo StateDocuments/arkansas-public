@@ -1,5 +1,0 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arkansas-public/blob/main/1170341675.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arkansas-public/blob/main/1328114567.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arkansas-public/blob/main/1346273440.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arkansas-public/blob/main/fileslist.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/arkansas-public/blob/main/video.jpg)
